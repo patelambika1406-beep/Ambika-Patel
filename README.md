@@ -36,5 +36,5 @@
 ---
 
 ## 📫 Connect With Me
-- 💼 [LinkedIn](https://linkedin.com/in/YOUR-USERNAME)
+- 💼 [LinkedIn](https://www.linkedin.com/in/ambika-patel-13057726a)
 - 📧 ambikaapatell123@gmail.com
